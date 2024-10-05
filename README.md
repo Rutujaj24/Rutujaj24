@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **rutujavishwasjadhav@gmail.com**
 
-- ⚡ Fun fact **I can type using just one hand**
+- ⚡ Fun fact **I’m a firm believer in lifelong learning, and I challenge myself to complete a new online course every month!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
